@@ -24,4 +24,5 @@ I’m intrigued by the way you express your thoughts about your interests. Day b
 
 <p align="center">
 ─────────────────────────────
+  <p align="center">
 + more to be added. just to note, I value each and one of you equally.
