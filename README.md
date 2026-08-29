@@ -17,7 +17,7 @@ A pleasure indeed that I got to meet you. You have been an honourable friend sin
 ─────────────────────────────
 
 <p align="center"> 
-  To: Wanin(@paletteneka)
+  To: Wani (@paletteneka)
   <p align="center">
 I’m intrigued by the way you express your thoughts about your interests. Day by day I get more interested in your ideas and feelings, maybe that’s a thing that makes you, you. We have not been friends for long, but I could tell I would have a long friendship full of mutual interests and thoughts with you. Just so you know, I am here for you when you need any help internally. Postscript, I love the videos you send to me. It is either the most random humour or straight up things you think I would enjoy, it is amazing.
 
